@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Perplexed-mind
 - 👀 I’m interested in Ai and backend development
 - 🌱 I’m currently learning backend development
-- 📫 How to reach me on twitter @souls_s7007
+- 📫 How to reach me on twitter @Antisocial_Jam_
 - 😄 Pronouns: He and Him
 - ⚡ Fun fact: ...
 
